@@ -1,4 +1,4 @@
-#  
+#  smart dig deeper for brainrots Script offers the most advanced dig deeper for brainrots Script, with no cooldown and invisibility. Perfect for
 
 
 
